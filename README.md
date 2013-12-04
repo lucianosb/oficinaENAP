@@ -1,7 +1,6 @@
 Oficina de GITHUB
 =================
 
-Utilize a poesia abaixo para encarnar um dos personagens e componha um parágrafo contando a historia do ponto de vista desse personagem. Escreva uma linha de cada vez, diretamente no texto abaixo, entre as estrofes do poema.
 
 ---
 
