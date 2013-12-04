@@ -14,7 +14,7 @@ Oficina de GITHUB
     
     Rosinha não tinha cravo nem espinha
     Tomava banho e era cheirosinha
-    Mas quando tomava uma cervejinha
+    Mas quando tomava uma cachacinha
     Dançava e cacarejava como uma galinha
 
     Numa linda madrugada
