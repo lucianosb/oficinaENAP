@@ -11,6 +11,11 @@ Oficina de GITHUB
     Quem fincou foi a Rosinha
     Que é cabrocha de alta linha
     E nos olhos tem seu não sei que
+    
+    Rosinha não tinha cravo nem espinha
+    Tomava banho e era cheirosinha
+    Mas quando tomava uma cervejinha
+    Dançava e cacarejava como uma galinha
 
     Numa linda madrugada
     Ao voltar da batucada
